@@ -32,251 +32,76 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Three precious teares of blood, flowing from the wounded harts of three great French ladies In memor
-#####Body#####
 
-1. TO THE RIGHT
+#####Body#####
+TO THE RIGHT
+HONORABLE, THE
+COVNTESSE OF
+DERBIE▪MADAME.YOVR approoued loue to that
+great house which
+    _ TO THE RIGHT
 HONORABLE, THE
 COVNTESSE OF
 DERBIE▪
-
-    _ Larme premiere,
-A LA MEMOIRE ET LOVANGE
-DE CE FAMEVZ
-MONARQVF, HENRY
-le grand.
-
-    _ The first teare,
-IN MEMORY AND PRAISE OF
-THAT FAMOVS MONARCH,
-HENRY
-the Great.
-
-    _ Larme seconde,
-COMPLAINTE DE MADAMOYSELLE
-ANNE DE ROHAN,
-SVR LA MORT DV GRAND
-Roy, HENRY
-IIII.
-
-    _ The second teare,
-A COMPLAINT OF THE RIGHT
-HONORABLE, THE LADY ANNE
-OF ROHAN, VPON THE DEATH
-of that great King, HENRY
-the fourth.
-
-    _ Larme troisieme,
-EN EXECRATION
-DV MEVRTRE DV GRAND
-Roy, HENRY, IIII.
-
-    _ The third teare,
-IN EXECRATION
-OF THE MVRTHER
-of that great King, HENRY
-the fourth.
 Larme premiere,
 A LA MEMOIRE ET LOVANGE
 DE CE FAMEVZ
 MONARQVF, HENRY
 le grand.1COmme vn foudre du Ci
-    _ Larme premiere,
+      * Larme premiere,
 A LA MEMOIRE ET LOVANGE
 DE CE FAMEVZ
 MONARQVF, HENRY
 le grand.
 
-    _ The first teare,
+      * The first teare,
 IN MEMORY AND PRAISE OF
 THAT FAMOVS MONARCH,
 HENRY
 the Great.
-
-    _ Larme seconde,
-COMPLAINTE DE MADAMOYSELLE
-ANNE DE ROHAN,
-SVR LA MORT DV GRAND
-Roy, HENRY
-IIII.
-
-    _ The second teare,
-A COMPLAINT OF THE RIGHT
-HONORABLE, THE LADY ANNE
-OF ROHAN, VPON THE DEATH
-of that great King, HENRY
-the fourth.
-
-    _ Larme troisieme,
-EN EXECRATION
-DV MEVRTRE DV GRAND
-Roy, HENRY, IIII.
-
-    _ The third teare,
-IN EXECRATION
-OF THE MVRTHER
-of that great King, HENRY
-the fourth.
-
-1. TO THE RIGHT HONORABLE,
+TO THE RIGHT HONORABLE,
+THE VICOVNTESSE
+OF CRANBORNE.MADAME.HErein appeares both the scantnes
+of my 
+    _ TO THE RIGHT HONORABLE,
 THE VICOVNTESSE
 OF CRANBORNE.
-
-    _ Larme premiere,
-A LA MEMOIRE ET LOVANGE
-DE CE FAMEVZ
-MONARQVF, HENRY
-le grand.
-
-    _ The first teare,
-IN MEMORY AND PRAISE OF
-THAT FAMOVS MONARCH,
-HENRY
-the Great.
-
-    _ Larme seconde,
-COMPLAINTE DE MADAMOYSELLE
-ANNE DE ROHAN,
-SVR LA MORT DV GRAND
-Roy, HENRY
-IIII.
-
-    _ The second teare,
-A COMPLAINT OF THE RIGHT
-HONORABLE, THE LADY ANNE
-OF ROHAN, VPON THE DEATH
-of that great King, HENRY
-the fourth.
-
-    _ Larme troisieme,
-EN EXECRATION
-DV MEVRTRE DV GRAND
-Roy, HENRY, IIII.
-
-    _ The third teare,
-IN EXECRATION
-OF THE MVRTHER
-of that great King, HENRY
-the fourth.
 Larme seconde,
 COMPLAINTE DE MADAMOYSELLE
 ANNE DE ROHAN,
 SVR LA MORT DV GRAND
 Roy, HENRY
 IIII.1QVoy?
-    _ Larme premiere,
-A LA MEMOIRE ET LOVANGE
-DE CE FAMEVZ
-MONARQVF, HENRY
-le grand.
-
-    _ The first teare,
-IN MEMORY AND PRAISE OF
-THAT FAMOVS MONARCH,
-HENRY
-the Great.
-
-    _ Larme seconde,
+      * Larme seconde,
 COMPLAINTE DE MADAMOYSELLE
 ANNE DE ROHAN,
 SVR LA MORT DV GRAND
 Roy, HENRY
 IIII.
 
-    _ The second teare,
+      * The second teare,
 A COMPLAINT OF THE RIGHT
 HONORABLE, THE LADY ANNE
 OF ROHAN, VPON THE DEATH
 of that great King, HENRY
 the fourth.
-
-    _ Larme troisieme,
-EN EXECRATION
-DV MEVRTRE DV GRAND
-Roy, HENRY, IIII.
-
-    _ The third teare,
-IN EXECRATION
-OF THE MVRTHER
-of that great King, HENRY
-the fourth.
-
-1. TO THE RIGHT HONORABLE,
+TO THE RIGHT HONORABLE,
+THE LADY
+CLIFFORD.MADAME.I Must needes be faithfull to my
+grounds: Once I re
+    _ TO THE RIGHT HONORABLE,
 THE LADY
 CLIFFORD.
-
-    _ Larme premiere,
-A LA MEMOIRE ET LOVANGE
-DE CE FAMEVZ
-MONARQVF, HENRY
-le grand.
-
-    _ The first teare,
-IN MEMORY AND PRAISE OF
-THAT FAMOVS MONARCH,
-HENRY
-the Great.
-
-    _ Larme seconde,
-COMPLAINTE DE MADAMOYSELLE
-ANNE DE ROHAN,
-SVR LA MORT DV GRAND
-Roy, HENRY
-IIII.
-
-    _ The second teare,
-A COMPLAINT OF THE RIGHT
-HONORABLE, THE LADY ANNE
-OF ROHAN, VPON THE DEATH
-of that great King, HENRY
-the fourth.
-
-    _ Larme troisieme,
-EN EXECRATION
-DV MEVRTRE DV GRAND
-Roy, HENRY, IIII.
-
-    _ The third teare,
-IN EXECRATION
-OF THE MVRTHER
-of that great King, HENRY
-the fourth.
 Larme troisieme,
 EN EXECRATION
 DV MEVRTRE DV GRAND
 Roy, HENRY, IIII.1EXecrable Assas•in dont l'enfer
-    _ Larme premiere,
-A LA MEMOIRE ET LOVANGE
-DE CE FAMEVZ
-MONARQVF, HENRY
-le grand.
-
-    _ The first teare,
-IN MEMORY AND PRAISE OF
-THAT FAMOVS MONARCH,
-HENRY
-the Great.
-
-    _ Larme seconde,
-COMPLAINTE DE MADAMOYSELLE
-ANNE DE ROHAN,
-SVR LA MORT DV GRAND
-Roy, HENRY
-IIII.
-
-    _ The second teare,
-A COMPLAINT OF THE RIGHT
-HONORABLE, THE LADY ANNE
-OF ROHAN, VPON THE DEATH
-of that great King, HENRY
-the fourth.
-
-    _ Larme troisieme,
+      * Larme troisieme,
 EN EXECRATION
 DV MEVRTRE DV GRAND
 Roy, HENRY, IIII.
 
-    _ The third teare,
+      * The third teare,
 IN EXECRATION
 OF THE MVRTHER
 of that great King, HENRY
